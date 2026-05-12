@@ -1,4 +1,4 @@
-# 
+# iMovie for macOS updated Addon: multi-cam-editing & time-remapping is the best iMovie for macOS addon, featuring multi-cam-editing and time-remapping. Safe, efficient, and
 
 
 
